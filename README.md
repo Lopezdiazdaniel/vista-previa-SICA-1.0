@@ -1,1 +1,0 @@
-# vista-previa-SICA-1.0
